@@ -11,3 +11,9 @@ computer Engineering And digital Technology Chulongkorn
 [![My Skills](https://skillicons.dev/icons?i=py,c,cpp,arduino,vscode)](https://skillicons.dev)
 
 ![](http://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=flukekub&theme=default)
+
+# Hobby
+ 
+Im templar assasin spammer in dota2 (900++ game). 
+
+![image](https://images.app.goo.gl/XnxwUgj8wib7om5k6)
