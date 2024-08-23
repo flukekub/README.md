@@ -14,7 +14,7 @@ computer Engineering And digital Technology Chulongkorn
 
 # Hobby
 Im dota2 player 4k mmr. 
-![image](https://www.vikingdota.com/cdn/shop/collections/SeasonalRank6-5_1024x.png?v=1616514480)
+![image](https://www.vikingdota.com/cdn/shop/collections/SeasonalRank6-5_1024x.png?v=1616514480). 
 Im templar assasin spammer (900++ game). 
 
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTLrPMFDNBpqOKnwjyd4rkwFeLb7LTOa2eaphnN8pTvn5Kg-vvvifiz_d-C&s=10)
