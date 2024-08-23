@@ -9,4 +9,4 @@ computer Engineering And digital Technology Chulongkorn University.
 -Im spammer templar assasin ind dota2.  
 -Im 4k mmr in dota2.  
 
-[![My Skills](https://skillicons.dev/icons?i=js,html,css,arduino)](https://skillicons.dev)
+[![My Skills](https://skillicons.dev/icons?i=py,c,cpp,arduino,vscode)](https://skillicons.dev)
