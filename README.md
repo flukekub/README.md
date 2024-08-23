@@ -13,7 +13,7 @@ computer Engineering And digital Technology Chulongkorn
 ![](http://github-profile-summary-cards.vercel.app/api/cards/profile-details?username=flukekub&theme=default)
 
 # Hobby
- 
-Im templar assasin spammer in dota2 (900++ game). 
+Im dota2 player 4k mmr. 
+Im templar assasin spammer (900++ game). 
 
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTLrPMFDNBpqOKnwjyd4rkwFeLb7LTOa2eaphnN8pTvn5Kg-vvvifiz_d-C&s=10)
